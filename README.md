@@ -9,4 +9,8 @@ Moving forward on a magickal path, it is evident that there is a need for a real
 
 In this shadow, The Fool is conceived as the beginning of a new journey, the opening of a new path. The tarot card of The Fool is number 0, the number of infinite potential
 
-[Check the website](https://thefool-berlin.com/about/)
+[https://thefool-berlin.com/about](https://thefool-berlin.com/about/)    [https://www.instagram.com/thefool_berlin/](https://www.instagram.com/thefool_berlin/)
+
+
+
+
