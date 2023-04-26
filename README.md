@@ -47,3 +47,9 @@ In this shadow, The Fool is conceived as the beginning of a new journey, the ope
 ## FBI 
 Yo guys check out these [UFO](https://vault.fbi.gov/UFO) reports from FBI official 
 
+
+# Kostas
+
+Thailand is a Southeast Asian country. It's known for tropical beaches, opulent royal palaces, ancient ruins and ornate temples displaying figures of Buddha. In Bangkok, the capital, an ultramodern cityscape rises next to quiet canalside communities and the iconic temples of Wat Arun, Wat Pho and the Emerald Buddha Temple (Wat Phra Kaew). Nearby beach resorts include bustling Pattaya and fashionable Hua Hin.
+
+[Thailand](./img-kostas/istockphoto-1011241694-612x612.jpg)
