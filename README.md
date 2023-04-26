@@ -1,4 +1,5 @@
-# Exercises_02
+# The Fool-esoteric space in Berlin
+
 I would like you to introduce you to a friend´s project.
 
 Berlin is a city which hosts millions of souls, ghosts and demons.
