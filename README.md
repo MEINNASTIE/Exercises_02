@@ -7,9 +7,11 @@ It has a unique occult history and a magickal intensity – lying mostly in secr
 
 Moving forward on a magickal path, it is evident that there is a need for a real space in this town – a space where all of us, magicians, occultists, students of esotericism and artists could congregate, share and experience in a common ground.
 
-In this shadow, The Fool is conceived as the beginning of a new journey, the opening of a new path. The tarot card of The Fool is number 0, the number of infinite potential
+In this shadow, The Fool is conceived as the beginning of a new journey, the opening of a new path. The tarot card of The Fool is number 0, the number of infinite potential.
 
-[Check the website](https://thefool-berlin.com/about/)
+[https://thefool-berlin.com/about](https://thefool-berlin.com/about/)    
+
+[https://www.instagram.com/thefool_berlin/](https://www.instagram.com/thefool_berlin/)
 
 
 # Exercises_02
@@ -46,6 +48,7 @@ In this shadow, The Fool is conceived as the beginning of a new journey, the ope
 
 ## FBI 
 Yo guys check out these [UFO](https://vault.fbi.gov/UFO) reports from FBI official 
+>>>>>>> b298ea48fc348858a741241e73d1d4a3171fcccb
 
 ---
 # Kostas
