@@ -49,7 +49,6 @@ In this shadow, The Fool is conceived as the beginning of a new journey, the ope
 
 ## FBI 
 Yo guys check out these [UFO](https://vault.fbi.gov/UFO) reports from FBI official 
->>>>>>> b298ea48fc348858a741241e73d1d4a3171fcccb
 
 ---
 # Kostas
