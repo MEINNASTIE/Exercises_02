@@ -1,4 +1,6 @@
-# The Fool-esoteric space in Berlin
+# Dadaism 
+
+## The Fool-esoteric space in Berlin
 
 I would like you to introduce you to a friend´s project.
 
@@ -14,8 +16,7 @@ In this shadow, The Fool is conceived as the beginning of a new journey, the ope
 
 [https://www.instagram.com/thefool_berlin/](https://www.instagram.com/thefool_berlin/)
 
-
-# Exercises_02
+---
 
 ## FACTS ABOUT GHANA
 
@@ -45,13 +46,12 @@ In this shadow, The Fool is conceived as the beginning of a new journey, the ope
 
 ---
 
-# Dadaism 
 
 ## FBI 
 Yo guys check out these [UFO](https://vault.fbi.gov/UFO) reports from FBI official 
 
 ---
-# Kostas
+## Kostas
 
 Thailand is a Southeast Asian country. It's known for tropical beaches, opulent royal palaces, ancient ruins and ornate temples displaying figures of Buddha. In Bangkok, the capital, an ultramodern cityscape rises next to quiet canalside communities and the iconic temples of Wat Arun, Wat Pho and the Emerald Buddha Temple (Wat Phra Kaew). Nearby beach resorts include bustling Pattaya and fashionable Hua Hin.
 
